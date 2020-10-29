@@ -12,7 +12,7 @@ Choose the quality
 
 press Enter 
 
-chick your folder 
+check your folder 
 
 YOU HAVE IT ! ^_^
 
